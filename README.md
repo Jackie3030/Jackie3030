@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jackie, seasoned Virtual Professional for 10 years.
+- 👋 Hi, I’m Jackie, seasoned Virtual Professional for 11+ years.
 - 👀 I’m interested in fast-paced thrills
 - 🌱 I’m currently learning how to create a mobile app
 - 💞️ I’m looking to collaborate on developing on a mobile app
